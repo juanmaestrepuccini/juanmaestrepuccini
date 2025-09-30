@@ -1,8 +1,8 @@
 # 💫 About Me:
-🔥 Programming<br>🤫 Young<br>📚 Studious<br>⚙ Mechatronic<br>😮‍💨 15 Years old 
+🔥 Programming<br>🤫 Young<br>📚 Studious<br>⚙ Mechatronic
 
 
 ## 🌐 Socials:
-IG: maestre_puccini04
+DC: juan_co.pro
 
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
